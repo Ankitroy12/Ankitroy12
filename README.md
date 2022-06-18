@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Ankitroy12
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning passed class 12
+- 🌱 I’m recently passed class 12
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
